@@ -1,0 +1,2 @@
+Amateur coder
+she/her
